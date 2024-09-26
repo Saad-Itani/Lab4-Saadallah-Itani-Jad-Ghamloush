@@ -1,1 +1,1 @@
-# Lab4-Student1-Saadallah-Itani-Student2-Jad-Ghamloush
+# Lab4-Saadallah-Itani-Jad-Ghamloush
